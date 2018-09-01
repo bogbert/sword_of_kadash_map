@@ -1,0 +1,1 @@
+These were the mid-eighties and "Sword of Kadash" was one of my favorite Apple II games. I share with you the map drawn by a young adventurer in those heroic days. Please forgive the bad spelling in the map title (printed on an ImageWriter II as you might have guessed).
